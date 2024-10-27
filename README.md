@@ -19,5 +19,5 @@
 
   ##
 
-  writed by inês (or duski lol) 
+  written by inês (or duski lol) 
 
